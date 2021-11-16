@@ -1,1 +1,4 @@
-# kolakovicnet
+# kolakovic.net
+
+
+It was morning, and the new sun sparkled gold across the ripples of a gentle sea. A mile from shore a fishing boat chummed the water. and the word for Breakfast Flock flashed through the air, till a crowd of a thousand seagulls came to dodge and fight for bits of food. It was another busy day beginning. But way off alone, out by himself beyond boat and shore, Jonathan Livingston Seagull was practicing. A hundred feet in the sky he lowered his webbed feet, lifted his beak, and strained to hold a painful hard twisting curve through his wings. The curve meant that he would fly slowly, and now he slowed until the wind was a whisper in his face, until the ocean stood still beneath him. He narrowed his eyes in fierce concentration, held his breath, forced one... single... more... inch... of... curve... Then his featliers ruffled, he stalled and fell.
